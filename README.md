@@ -7,4 +7,4 @@
 
 ---
 
-- **Fun fact**: Halo is the best Sci-Fi franchise. Full-stop. I'm sorry I said this.
+- **Fun fact**: Halo is the best Sci-Fi franchise. Full-stop. I am incredibly biased.
